@@ -1,15 +1,13 @@
 <center> <h3> <b> 
 🔴 برای خرید فیلترشکن و ورود به سایت صبا وی پی ان روی لینک زیر کلیک کنید 🚀
   <br>  <br>
-<a href="https://sabavpn42.sbs">برای ورود به سایت اصلی خرید وی پی ان کلیک کنید</a>
+<a href="https://sabavpn43.sbs">برای ورود به سایت اصلی خرید وی پی ان کلیک کنید</a>
 <center> <h3> <b> 
 🔴همچنین می توانید از طریق آی دی تلگرام زیر اقدام به خرید vpn کنید
   <br>  <br>
 <a href="https://t.me/sabavpn_info/">خرید vpn v2ray در تلگرام</a>
 
 <p><span>
-
-  <br> <br> <br> <p><span><img src="https://02589.site/wp-content/uploads/2023/10/baner-hamaaan.png" alt=""/></span></p><br> 
 
 وی پی ان صبا- چند سرور پر سرعت بدون قطعی  با پشتیبانی در تلگرام
 <br> 
