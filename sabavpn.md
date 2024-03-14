@@ -24,6 +24,8 @@
 سرور های اختصاصی<br> 
 تمامی سرور های VPN پ، اختصاصی می باشند. ازین رو شما می توانید بدون کندی در اتصال، از گشت و گذار در اینترنت لذت ببرید.
 <br> 
+<a href="https://github.com/sitesaba/saba-site/blob/main/privacy-policy.md">privacypolicy</a>
+
 خرید vpn
 <br> 
 امن و قابل اعتماد<br> 
